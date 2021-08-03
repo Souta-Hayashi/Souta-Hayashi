@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Souta-Hayashi
+- 👀 I’m interested in fitness exercises, designs and motor cars.
+- 🌱 I’m currently learning programming and business administration.
+- 📫 How to reach me: hsouta081@gmail.com.
